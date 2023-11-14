@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Trevor-mburu
+- 👀 I’m interested in Computing Skills
+- 🌱 I’m currently learning Information Security and Forensics
+- 💞️ I’m looking to collaborate on Coding and other skills
+  - 📫 How to reach me-2305204@students.kcau.ac.ke
